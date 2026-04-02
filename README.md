@@ -12,7 +12,7 @@
 </p>
 <p align="center">
 <sub>
-<a href="https://kissmissyirl.atabook.org/">ata</a>ㅤ.ㅤ
-<a href="https://guns.lol/meowzus">gunz</a>ㅤ.ㅤ
-<a href="https://pronouns.cc/@kissychu">prns</a> 
+<a href="https://koifishuu.atabook.org/">ata</a>ㅤ.ㅤ
+<a href="https://guns.lol/koixzu">gunz</a>ㅤ.ㅤ
+<a href="https://pronouns.cc/@kissychu">prns (outdated)</a> 
 </sub>
