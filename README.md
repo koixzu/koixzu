@@ -3,7 +3,7 @@
 </p>
 
 <p align=center>
-<img src="https://github.com/koixzu/koixzu/blob/7ccf563456fca962e0423194b9a40b90fac9612c/frriend%20elliot.png" width=400>
+<img src="https://github.com/koixzu/koixzu/blob/e5feacfb7fd234537fcd1c12670a1264616c2e3e/friendaaallalla.png" width=400>
   
 <p align="center">
   <span style="color:#66E6C6; font-size:28px;">
