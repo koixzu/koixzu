@@ -7,7 +7,7 @@
   
 <p align="center">
   <span style="color:#66E6C6; font-size:28px;">
-    𝒞𝐿𝒪𝒮𝐸 𝒯𝒪 𝑀𝐸.
+    𝒞𝒪𝒵𝒴 𝒜𝒩𝒟 𝒞𝒰𝒟𝒟𝐿𝒴!
   </span>
 </p>
 <p align="center">
