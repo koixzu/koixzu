@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=koixzuE&label=unfortunates&color=89CFF0&style=flat"/>
+<img src="https://komarev.com/ghpvc/?username=koixzuE&label=bffs&color=89CFF0&style=flat"/>
 </p>
 
 <p align=center>
-<img src="https://github.com/koixzu/koixzu/blob/e5feacfb7fd234537fcd1c12670a1264616c2e3e/friendaaallalla.png" width=400>
+<img src="https://github.com/koixzu/koixzu/blob/0a6f94de8d3526edaa98da1df51f9d1ebb3ec253/yarnaby.png" width=400>
   
 <p align="center">
   <span style="color:#66E6C6; font-size:28px;">
