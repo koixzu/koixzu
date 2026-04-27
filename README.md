@@ -14,5 +14,6 @@
 <sub>
 <a href="https://koifishuu.atabook.org/">ata</a>ㅤ.ㅤ
 <a href="https://guns.lol/koixzu">gunz</a>ㅤ.ㅤ
-<a href="https://pronouns.cc/@kissychu">prns</a> 
+<a href="https://pronouns.cc/@kissychu">prns</a>ㅤ.ㅤ
+<a href="https://rentry.co/evanznmawia">shared rentry!!!!</a> 
 </sub>
