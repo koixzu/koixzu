@@ -4,7 +4,7 @@
 
 <p align="center">
 <sub>
-<a href="https://koifishuu.atabook.org/">αtαbook</a>ㅤ┄ㅤ<a href="https://rentry.co/luckymawi">rentry.co</a>ㅤ┄ㅤ<a href="https://guns.lol/koixzu">guns.lol</a>
+<a href="https://koifishy.atabook.org/">αtαbook</a>ㅤ┄ㅤ<a href="https://rentry.co/luckymawi">rentry.co</a>ㅤ┄ㅤ<a href="https://guns.lol/koixzu">guns.lol</a>
 </sub>
 </p>
 
