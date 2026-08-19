@@ -10,7 +10,7 @@
 
 <p align="center">
 <sub>
-${\color{#FBFFEF}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$
+${\color{#FBFFEF}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$ <br> ${\color{#F4F8DE}\text{minors over 14 can int but wif caution, dont expect mi to befriend or get close wif yuu}}$
 </sub>
 </p>
 
