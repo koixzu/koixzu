@@ -14,7 +14,7 @@
 
 <p align="center">
 <sub>
-${\color{#FBFFEF}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$ <br> ${\color{#F4F8DE}\text{minors -15 can int but wif caution, dont expect mi to befriend or get close wif yuu}}$
+${\color{#F27F26}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$ <br> ${\color{#0C4D79}\text{minors -15 can int but wif caution, dont expect mi to befriend or get close wif yuu}}$
 </sub>
 </p>
 
@@ -23,5 +23,5 @@ ${\color{#FBFFEF}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\colo
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/ad797a292e2b03f63b857db16e276a6d/27f38aeaef19874c-83/s100x200/a72c1ad344b229248c22f9336c84ad81824c8abe.pnj" width=130> <img src="https://64.media.tumblr.com/dfb3e4e5f015c24a2c91cc8d0740b2d9/27f38aeaef19874c-a1/s100x200/710fee99c4d28c4bd34348ee2eab947d6cd91860.gifv" width=130> <img src="https://64.media.tumblr.com/5d937e5474671836ef2bafe2a06aa0be/27f38aeaef19874c-9c/s100x200/6f685d01771aba24e221646cc8fdc88cadd9350f.gifv" width=130>
+<img src="https://64.media.tumblr.com/ad797a292e2b03f63b857db16e276a6d/27f38aeaef19874c-83/s100x200/a72c1ad344b229248c22f9336c84ad81824c8abe.pnj" width=130> <img src="https://64.media.tumblr.com/dfb3e4e5f015c24a2c91cc8d0740b2d9/27f38aeaef19874c-a1/s100x200/710fee99c4d28c4bd34348ee2eab947d6cd91860.gifv" width=130> <img src="https://64.media.tumblr.com/5d937e5474671836ef2bafe2a06aa0be/27f38aeaef19874c-9c/s100x200/6f685d01771aba24e221646cc8fdc88cadd9350f.gifv" width=130> <img src="https://64.media.tumblr.com/a996b9c23618104442156e0e43931ff2/27f38aeaef19874c-c3/s100x200/263113c8987ee63ec83b35a617ebd7b1e22bba51.pnj" width=130>
 </p>
