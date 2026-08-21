@@ -14,7 +14,7 @@
 
 <p align="center">
 <sub>
-${\color{#F27F26}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$ <br> ${\color{#35759C}\text{minors -15 can int but wif caution, dont expect mi to befriend or get close wif yuu}}$
+${\color{#F27F26}\text{c+h friendly, check rentry befo u int -w-}}$ <br> ${\color{#F4F8DE}\text{pls don't copy any of muy skins, w2i to ask fo inspo}}$ <br> ${\color{#35759C}\text{minors -14 can int but wif caution, dont expect mi to befriend or get close wif yuu}}$
 </sub>
 </p>
 
